@@ -1,1 +1,1 @@
-# Amazon-Forest---Infographics-
+# Amazon-Forest---Infographics
