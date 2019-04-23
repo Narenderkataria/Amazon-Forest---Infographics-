@@ -1,4 +1,4 @@
-Amazon Rain forest Infographics .
+Amazon Rain forest Infographics - Adobe Illustrator 
 
  
 
